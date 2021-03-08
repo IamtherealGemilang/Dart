@@ -7,4 +7,4 @@ Program Studi Ilmu Komputer
 
 Fakultas Matematika dan Ilmu Pengetahuan Alam
 
-Universitas Pakuan
+Universitas Pakuan Bogor - Indonesia
